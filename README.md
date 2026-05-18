@@ -1,6 +1,6 @@
 <div align="center">
   <h1 align="center">Clovis é o KRL</h1>
-  <h3 align="center">Seus PCD DE MERDA </h3>
+  <h3 align="center">EU NÃO SOU O KID BENGALA PRR</h3>
 </div>
 
 <div align="center">
